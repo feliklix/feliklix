@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @feliklix
-- 👀 I’m interested in Games, (Data analytics/Web dev)
+- 👀 I’m interested in Games, (Data analytics/Web dev), dreamng to get into Robotics rn
 - 🌱 I’m currently learning basics
 - 📫 How to reach me idk xD
 - 😄 Pronouns: he/his
